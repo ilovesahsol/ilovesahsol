@@ -1,1 +1,2 @@
-https://media.discordapp.net/attachments/569315372319244293/1570241083634483230/HMdecq8bwAAX8bC.jpg?ex=6af66078&is=6af50ef8&hm=ffa666cc157df48af29c37966f9f3b4255a5c5fbf07b364aec9b0f04076dedda&=&format=webp
+<p align="center">
+<img width="1206" height="927" alt="HMdecq8bwAAX8bC" src="https://github.com/user-attachments/assets/6cb85a19-e537-4f92-a464-b011f3fc237b" />
