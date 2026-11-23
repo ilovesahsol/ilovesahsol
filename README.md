@@ -1,4 +1,4 @@
 <p align="center">
-<img width="2500" height="1120" alt="HXFupcnaEAAw229" src="https://github.com/user-attachments/assets/6a52e512-b6ec-4341-b72e-daa005c9a6e5" />
+<img width="760" height="760" alt="GcBQ760bEAAWq70" src="https://github.com/user-attachments/assets/ab7cbfec-86f2-4b95-af16-ad5477e2bdcf" />
 <p align="center">
-  ac @m88km88k
+ 
